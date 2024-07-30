@@ -1,0 +1,1 @@
+# tugas uas irfan pokemon details apps
